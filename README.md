@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @ArmicZeroGTRS<br>🏫 I study at Walisongo State Islamic University<br>🏫 I'm a Islamic Family Law major<br>👀 I’m interested in AI and System Developer<br>🌱 I’m currently learning Artificial Intellegence and Vibe Coding<br>💞️ I’m looking to collaborate on Anthropic, Microsoft, and Google<br>📫 How to reach me : Telegram and Github<br>😄 Pronouns: ARMIC<br>⚡ Fun fact: I like watch anime and YOASOBI
+👋 Hi, I’m @ArmicZeroGTRS<br>🏫 I study at Walisongo State Islamic University<br>🏫 I'm a Islamic Family Law major<br>👀 I’m interested in AI and System Developer<br>🌱 I’m currently learning Artificial Intellegence and Vibe Coding<br>💞️ I’m looking to collaborate on Anthropic, Microsoft, and Google<br>📫 How to reach me : Telegram and Github<br>😄 Pronouns: ARMIC<br>⚡ Fun fact: I like watch anime and YOASOBI<br>✌️I have been an active member of the Xiaomi Federation Indonesia (XFI) on the Telegram platform since 2020.
 
 
 ## 🌐 Socials:
